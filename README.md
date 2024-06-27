@@ -1,5 +1,6 @@
-- 👋 Hi, I’m @Navajo4425
+- 👋 Hi, I’m @PrinceSky425 
 - 👀 I’m interested in ...
+  Disney And technology
 - 🌱 I’m currently learning
 Computer Programing and device hardware repair
  ...
